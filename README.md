@@ -1,2 +1,2 @@
 turma_b_boomerang
-joaovamarante@gmail.com
+João Victor Monteiro Amarante
